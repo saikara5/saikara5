@@ -1,8 +1,9 @@
-- 👋 Hi, I’m @saikara5
-- 🍓 I like working on discord 
-- 🍓 I'm just a designer, painter, author, blogger and programer
-- 💞️ I’m looking a gud person ^^
-- 📫 How to reach me ...
+»»——⍟——«« @arapaint_ ・..✫・゜.
+community owner | designer | 18 ・.・。
+❃website 🌐 http://www.mikuni.gq/ 
+❃network 🌐 https://linkr.bio/mikuni
+..・゜✭・.・✫・゜・。.✭・.・✫・゜
+✫・゜・。 ☂ ⭐ ・.・✫.・.・✭ ..✫
 
 <!---
 saikara5/Arane Miku is a 🍉 special 🍉 repository because its `README.md` (this file) appears on your GitHub profile.
