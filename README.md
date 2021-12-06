@@ -1,7 +1,7 @@
 »»——⍟——«« @arapaint_ ・..✫・゜.
 community owner | designer | 18 ・.・。
 ❃website 🌐 http://www.mikuni.gq/ 
-❃network 🌐 https://linkr.bio/mikuni
+❃network 🌐 https://linkr.bio/mikuninetwork
 ..・゜✭・.・✫・゜・。.✭・.・✫・゜
 ✫・゜・。 ☂ ⭐ ・.・✫.・.・✭ ..✫
 
