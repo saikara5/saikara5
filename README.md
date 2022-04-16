@@ -1,5 +1,5 @@
-»»——⍟——«« @arapaint_ ・..✫・゜.
-community owner | designer | 18 ・.・。
+»»——⍟——«« @arapaint_・..✫・゜.
+community owner | designer | 19 ・.・。 @aranemiku NFT Project
 ❃website 🌐 https://araproduction21.wixsite.com/aranemiku
 ❃network 🌐 https://linktr.ee/aranemiku
 ..・゜✭・.・✫・゜・。.✭・.・✫・゜
