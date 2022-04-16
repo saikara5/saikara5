@@ -1,6 +1,6 @@
 »»——⍟——«« @arapaint_ ・..✫・゜.
 community owner | designer | 18 ・.・。
-❃website 🌐 http://www.mikuninetwork.com 
+❃website 🌐 https://araproduction21.wixsite.com/aranemiku
 ❃network 🌐 https://linktr.ee/aranemiku
 ..・゜✭・.・✫・゜・。.✭・.・✫・゜
 ✫・゜・。 ☂ ⭐ ・.・✫.・.・✭ ..✫
