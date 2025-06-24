@@ -1,7 +1,7 @@
-»»——⍟——«« @arapaint_・..✫・゜.
-community owner | designer | 19 ・.・。 @aranemiku NFT Project
-❃website 🌐 https://araproduction21.wixsite.com/aranemiku
-❃network 🌐 https://linktr.ee/aranemiku
+»»——⍟——«« @cutara・..✫・゜.
+21 august 2003 ・.・。
+community owner | graphic designer | motion artist | author  
+❃network 🌐 https://linktr.ee/authorizz
 ..・゜✭・.・✫・゜・。.✭・.・✫・゜
 ✫・゜・。 ☂ ⭐ ・.・✫.・.・✭ ..✫
 
