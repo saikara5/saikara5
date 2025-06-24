@@ -1,4 +1,4 @@
-»»——⍟——«« @cutara・..✫・゜.
+»»——⍟——«« @cutara.author・..✫・゜.
 21 august 2003 ・.・。
 community owner | graphic designer | motion artist | author  
 ❃network 🌐 https://linktr.ee/authorizz
